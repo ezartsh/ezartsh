@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ezartsh
+- 👀 I’m interested in everything
+- 🌱 I’m currently learning anything
+- 💞️ I’m looking to collaborate on everybody
+- 📫 How to reach me on the afterlife
